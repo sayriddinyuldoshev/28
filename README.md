@@ -1,0 +1,2 @@
+# 28
+maktab tashkiloti
